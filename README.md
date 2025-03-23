@@ -1,2 +1,2 @@
-
-<img width="400" height="400" src="https://files.catbox.moe/ihr41h.png"> <p align="center">
+<div align="center">
+<img width="400" height="400" src="https://files.catbox.moe/ihr41h.png">
