@@ -1,9 +1,9 @@
 <div align="center">
-<img width="400" height="400" src="https://files.catbox.moe/79e267.png">
-  
+<img width="200" height="200" src="https://files.catbox.moe/s61wba.png">
+
 check out [straw.](https://galf.straw.page/)   &nbsp; sign [atabook.](https://galf.atabook.org/) <br>
 
+**✧**
 
-
-<img width="100" height="55" src="https://files.catbox.moe/eu5k7w.gif"> <img width="100" height="55" src="https://files.catbox.moe/ct3kue.gif"> <img width="100" height="55" src="https://files.catbox.moe/9khtrq.gif">
+<img width="200" height="20" src="https://files.catbox.moe/o2zo73.webp">
   
