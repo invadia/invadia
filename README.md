@@ -5,5 +5,5 @@ check out [straw.](https://galf.straw.page/)   &nbsp; sign [atabook.](https://ga
 
 **✧**
 
-<img width="200" height="20" src="https://files.catbox.moe/uirm9x.webp">
+<img width="200" height="20" src="https://files.catbox.moe/oij819.webp">
   
